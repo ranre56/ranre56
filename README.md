@@ -22,4 +22,4 @@
 * English(A1)
 * Turkish(A1)
 *************
-********Thanks for your attention********
+********Thanks for your attention, I go to sleep********
